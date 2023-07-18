@@ -12,7 +12,6 @@ This book is not just about building a superficial image. It's about creating a 
 
 Whether you're just starting out on your personal branding journey or looking to take it to the next level, "Navigating Your Personal Brand Journey" is an essential resource for anyone seeking to build a powerful and authentic personal brand.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
