@@ -1,5 +1,3 @@
-Building a Community and Engaging with Followers on Social Media
-==========================================================================================================================
 
 Social media not only allows you to showcase your personal brand, but it also provides an opportunity to build a community and engage with your followers. In this chapter, we will explore strategies for building a community and engaging with your followers on social media.
 

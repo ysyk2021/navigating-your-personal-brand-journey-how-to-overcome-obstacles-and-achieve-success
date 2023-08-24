@@ -1,5 +1,3 @@
-Chapter 5: Establishing Thought Leadership Through Personal Branding
-====================================================================
 
 Establishing yourself as a thought leader in your industry is a powerful way to build credibility and increase visibility. In this chapter, we will explore strategies for establishing thought leadership through personal branding.
 
